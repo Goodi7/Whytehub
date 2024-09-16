@@ -12,7 +12,7 @@ I have been undergoing personal development in the crypto space for over 4 years
 
 • 🧠 I'm presently learning cyber security
 
-• 🤝  I'm open to collaborating on Any virtual assistant, cryto or tech program/project
+• 🤝  I'm open to collaborating on Any virtual assistant, crypto or tech program/project
 
 
  
